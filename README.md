@@ -1,6 +1,6 @@
 # emptyname
 
-Paintings, coding, generative works, music, texts.
+Painting, coding, thinking, writing.
 
 The name is a name with no referent. What there is to find is the work, and the work is at:
 
